@@ -6,3 +6,5 @@ bonjour a tous j'espere que vous allez bien !
 dqsbkhfbqhsjb
 icklq 
 qcqs
+
+y'a t'il un ptn de conflit ?
